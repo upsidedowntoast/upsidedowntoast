@@ -26,4 +26,4 @@ In my spare time, I retrofit vintage electronics (mostly cameras) with modern em
 - Capturing film photography in the Arizona desert using restored analog gear
 
 ### 📬 Let’s Connect
-The best way to reach me is [on LinkedIn](https://www.linkedin.com/in/andrew-wise-97138715b/)
+The best way to reach me is on [LinkedIn](https://www.linkedin.com/in/andrew-wise-97138715b/)
